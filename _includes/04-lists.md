@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+# A list of things i love to do -
+- Watching Prodigal Son 🎥
+- Making Websites 🕸️
+- Doing Nothing
